@@ -1,0 +1,1 @@
+# zalupa_konia_viniamina
